@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Junkyard1 A gamer looking to take Esports to the next level teamed with @tomarti31
+- 👀 I’m interested in ... Gaming and content creation 
+- 🌱 I’m currently learning ... how to use github by @tomarti31
+- 💞️ I’m looking to collaborate on ... Creating a platform where esports and crypto collide
+- 📫 How to reach me ... bitgametech@gmail.com
